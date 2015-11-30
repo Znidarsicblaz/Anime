@@ -13,3 +13,4 @@ Just some bullshit
 
 ### Reading
 * Tales of Demons and Gods 30
+* the gamer season 2 episode 16
